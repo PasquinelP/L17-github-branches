@@ -17,5 +17,22 @@ This is the classic Italian creamy delicious coffee sponge dessert! Tiramisu mea
 11. Lastly finish with a dusting of 2 Tbsp of cacao powder through a mesh strainer and roughly chop or grate the chocolate and sprinkle across the top. Or use freeze dried raspberries or strawberries if you can source them.
 12. Serve and enjoy!
 
+### Ingredients
+
+* 200 g white flour
+* 150 g caster sugar
+* 1 tbsp baking powder
+* 1/4 tsp baking soda
+* 150 ml oat milk or plant milk of choice
+* 50 ml oil
+* 1/2 tbsp vinegar
+* 1/2 tsp vanilla essence
+* 300 ml strong coffee
+* 50 ml brandy/ marsala or even Kailua or vanilla essence
+* 900 g of coconut cream OR 200g vegan cream cheese & 250g vegan double cream
+* 100 g icing sugar
+* 3/4 tsp vanilla essence
+* 2 tbsp cacao powder
+* 30 g grated dark chocolate
 
 
